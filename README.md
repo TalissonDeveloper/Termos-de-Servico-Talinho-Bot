@@ -1,0 +1,1 @@
+# Termos-de-Servico-Talinho-Bot
